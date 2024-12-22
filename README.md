@@ -6,7 +6,7 @@ author:  © 2021-2024 alexander puls <github@0vv1.net>
 license: cc by-nc-nd 4.0 int. (creative commons: namensnennung -  
          nicht kommerziell - keine bearbeitung 4.0 international)  
          <https://0vv1.io/cc-by-nc-nd>  
-version: mi., 18. dez. 2024  
+version: so., 22. dez. 2024  
 ```
 
 <h1>Von Crews da drau&szlig;en,
@@ -109,7 +109,7 @@ Ver&shy;wech&shy;seln die mich oder was:
 > dass "die" mich auch mit den **Stimme**n **anderer Protagonisten** sprechen lassen k&ouml;nnen,
 > ich also quasi auch jede andere Identit&auml;t abbilde,
 > wenn "die" das wollen!  
-> Ergo: **Jede akustische Kommunikation mit Gespr.-prtnern hinter W&auml;nden ist beliebig**:
+> Ergo: **Jede akustische Kommunikation mit Gespr.-partnern hinter W&auml;nden ist beliebig**:
 > Stimminhaber(-in), inhaltl./zeitl./r&auml;uml. Kontext, Richtung der Quelle sowie Dauer
 > (manchmal werden Adressaten im Sekundentakt gewechselt).  
 > "Vermittlung" mit eigenen Interessen eines klassischen "(Wo)Man in the Middle",
