@@ -104,11 +104,17 @@ Ver&shy;wech&shy;seln die mich oder was:
 > Sorry!
 > 
 > [Mi., **18.12.**]
+> Innerhalb der Wohnh&auml;user wurden schon lange beliebige Kommunikationspartner zusammengeschalten.
 > Heute habe ich bemerkt,
 > dass "die" mich auch mit den **Stimme**n **anderer Protagonisten** sprechen lassen k&ouml;nnen,
 > ich also quasi auch jede andere Identit&auml;t abbilde,
-> wenn "die" das wollen!
-   
+> wenn "die" das wollen!  
+> Ergo: **Jede akustische Kommunikation mit Gespr.-prtnern hinter W&auml;nden ist beliebig**:
+> Stimminhaber(-in), inhaltl./zeitl./r&auml;uml. Kontext, Richtung der Quelle sowie Dauer
+> (manchmal werden Adressaten im Sekundentakt gewechselt).  
+> "Vermittlung" mit eigenen Interessen eines klassischen "(Wo)Man in the Middle",
+> dort findet auch Remixing und "Anreicherung" von Gesagtem statt.
+
 Er selbst meint,
 ich sei ge&shy;mein&shy;sam mit einer ehe&shy;ma&shy;li&shy;gen
 Nach&shy;ba&shy;rin zur Te&shy;le&shy;pat&shy;hie be&shy;f&auml;higt,
