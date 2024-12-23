@@ -6,7 +6,7 @@ author:  © 2021-2024 alexander puls <github@0vv1.net>
 license: cc by-nc-nd 4.0 int. (creative commons: namensnennung -  
          nicht kommerziell - keine bearbeitung 4.0 international)  
          <https://0vv1.io/cc-by-nc-nd>  
-version: so., 22. dez. 2024  
+version: mo., 23. dez. 2024  
 ```
 
 <h1>Von Crews da drau&szlig;en,
@@ -111,9 +111,21 @@ Ver&shy;wech&shy;seln die mich oder was:
 > wenn "die" das wollen!  
 > Ergo: **Jede akustische Kommunikation mit Gespr.-partnern hinter W&auml;nden ist beliebig**:
 > Stimminhaber(-in), inhaltl./zeitl./r&auml;uml. Kontext, Richtung der Quelle sowie Dauer
-> (manchmal werden Adressaten im Sekundentakt gewechselt).  
-> "Vermittlung" mit eigenen Interessen eines klassischen "(Wo)Man in the Middle",
-> dort findet auch Remixing und "Anreicherung" von Gesagtem statt.
+> (manchmal werden Adressaten im Sekundentakt gewechselt).
+> Etiam ergo: Die **Initialt&auml;ter sprechen mit jeder beliebigen Stimme**
+> (und haben leider extrem toxische und &uuml;ber alle Ma&szlig;en perfide Absichten)!  
+> Sowohl die "Vermittlung" von Gespr. als auch die eigenen Interessen dieser klassischen
+> "(Wo)**Men in the Middle**" sollen Menschen so kr&auml;tig wie nur m&ouml;glich gegeneinander fahren,
+> dort finden auch Remixing und "Anreicherung" von Gesagtem statt.
+>
+> [**Anm.** **23.12.**]
+> Ich bef&uuml;rchte langsam, T&ouml;tung wird nicht nur billigend in Kauf genommen,
+> sondern k&ouml;nnte beabsichtigt sein?
+> (Suggeriert wurde selbst das "Anstacheln" von Vertretern organisierter Kriminalit&auml;t i.&#8239;w.&#8239;S.
+> unter Einsatz fremder Stimmen vs. Stimmen von Einzelpersonen immer nur durch Initialt&auml;ter.
+> Nochmal deutlich: **Initialt&auml;ter benutzen die Stimmen beliebiger Protagonisten,
+> um maximal m&ouml;gliche Sch&auml;den anzurichten.
+> Und mit allen Konsequenzen!**)
 
 Er selbst meint,
 ich sei ge&shy;mein&shy;sam mit einer ehe&shy;ma&shy;li&shy;gen
