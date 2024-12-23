@@ -111,7 +111,7 @@ Ver&shy;wech&shy;seln die mich oder was:
 > wenn "die" das wollen!  
 > Ergo: **Jede akustische Kommunikation mit Gespr.-partnern hinter W&auml;nden ist beliebig**:
 > Stimminhaber(-in), inhaltl./zeitl./r&auml;uml. Kontext, Richtung der Quelle sowie Dauer
-> (manchmal werden Adressaten im Sekundentakt gewechselt).
+> (manchmal werden Adressaten im Sekundentakt gewechselt).  
 > Etiam ergo: Die **Initialt&auml;ter sprechen mit jeder beliebigen Stimme**
 > (und haben leider extrem toxische und &uuml;ber alle Ma&szlig;en perfide Absichten)!  
 > Sowohl die "Vermittlung" von Gespr. als auch die eigenen Interessen dieser klassischen
@@ -123,9 +123,9 @@ Ver&shy;wech&shy;seln die mich oder was:
 > sondern k&ouml;nnte beabsichtigt sein?
 > (Suggeriert wurde selbst das "Anstacheln" von Vertretern organisierter Kriminalit&auml;t i.&#8239;w.&#8239;S.
 > unter Einsatz fremder Stimmen vs. Stimmen von Einzelpersonen immer nur durch Initialt&auml;ter.
-> Nochmal deutlich: **Initialt&auml;ter benutzen die Stimmen beliebiger Protagonisten,
+> Nochmal deutlich: **Initialt&auml;ter benutzen in teils aufwendigen Inszenierungen die Stimmen beliebiger Protagonisten,
 > um maximal m&ouml;gliche Sch&auml;den anzurichten.
-> Und mit allen Konsequenzen!**)
+> Leider mit allen Konsequenzen!**)
 
 Er selbst meint,
 ich sei ge&shy;mein&shy;sam mit einer ehe&shy;ma&shy;li&shy;gen
