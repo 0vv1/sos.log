@@ -125,7 +125,7 @@ Ver&shy;wech&shy;seln die mich oder was:
 > unter Einsatz fremder Stimmen vs. Stimmen von Einzelpersonen immer nur durch Initialt&auml;ter.
 > Nochmal deutlich: **Initialt&auml;ter benutzen in teils aufwendigen Inszenierungen die Stimmen beliebiger Protagonisten,
 > um maximal m&ouml;gliche Sch&auml;den anzurichten.
-> Leider mit allen Konsequenzen!**)
+> Leider mit allen Konsequenzen!**)  
 > **Bsp.**: Initialt&auml;ter l&auml;sst Stimmen eigentlich unbeteiligter Mieter
 > (dann Mitt&auml;ter!)
 > Babys durchz&auml;hlen,
@@ -135,6 +135,10 @@ Ver&shy;wech&shy;seln die mich oder was:
 > um was es geht.
 > Erwartet von mir, dass ich mitschreibe und beschuldige?
 > Erwartet, dass beschuldigte Mitglieder OK sich so eine Falschbeschuldigung nicht bieten lassen?
+>
+> [n&auml;chste **Anm.**]
+> Woher soll ich eigentlich diese ganzen (teils in VT abdriftenden) Details zu "kriminellen Machenschaften" kennen,
+> wenn nicht jemand nachhilft?
 
 Er selbst meint,
 ich sei ge&shy;mein&shy;sam mit einer ehe&shy;ma&shy;li&shy;gen
