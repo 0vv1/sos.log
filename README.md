@@ -126,6 +126,15 @@ Ver&shy;wech&shy;seln die mich oder was:
 > Nochmal deutlich: **Initialt&auml;ter benutzen in teils aufwendigen Inszenierungen die Stimmen beliebiger Protagonisten,
 > um maximal m&ouml;gliche Sch&auml;den anzurichten.
 > Leider mit allen Konsequenzen!**)
+> **Bsp.**: Initialt&auml;ter l&auml;sst Stimmen eigentlich unbeteiligter Mieter
+> (dann Mitt&auml;ter!)
+> Babys durchz&auml;hlen,
+> um zu schauen, wieviele es "geschafft" haben (Hinweis: nicht viele)
+> und gleich noch Babymatrazen bestellen,
+> dass auch wirklich klar wird,
+> um was es geht.
+> Erwartet von mir, dass ich mitschreibe und beschuldige?
+> Erwartet, dass beschuldigte Mitglieder OK sich so eine Falschbeschuldigung nicht bieten lassen?
 
 Er selbst meint,
 ich sei ge&shy;mein&shy;sam mit einer ehe&shy;ma&shy;li&shy;gen
