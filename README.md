@@ -6,7 +6,7 @@ author:  © 2021-2024 alexander puls <github@0vv1.net>
 license: cc by-nc-nd 4.0 int. (creative commons: namensnennung -  
          nicht kommerziell - keine bearbeitung 4.0 international)  
          <https://0vv1.io/cc-by-nc-nd>  
-version: mo., 23. dez. 2024  
+version: di., 24. dez. 2024  
 ```
 
 <h1>Von Crews da drau&szlig;en,
@@ -330,6 +330,11 @@ Ich will die sog. Wahr&shy;heit wis&shy;sen!
 So schreck&shy;lich oder banal sie auch immer sein mag.
 	</details>
 
+[Di., **24.12.**]
+Sind die in der letzten Nacht wieder in die Wohnung,
+nur um mir ein Kissen abzuziehen?!
+Was wollen die damit?
+
 <span id="2024-12-07">[Sa., **07.12.**]</span>
 Dieser komi&shy;sche
 (sich jetzt lang&shy;sam heraus&shy;stel&shy;len&shy;de)
@@ -351,7 +356,7 @@ einer Art P&auml;do-Sadis&shy;mus
 (wenn es soetwas gibt)?  
 Diese am n&auml;chsten Tag wie&shy;der (teil-)revi&shy;diert?
 
-In derselben Nacht
+In derselben Nacht ..
 
 So. fr&uuml;h (08.12.) einer der T&auml;ter nach
 Hand&shy;greif&shy;lich&shy;keit in ins&shy;ze&shy;nier&shy;ter Not:
