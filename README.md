@@ -338,11 +338,26 @@ Abends ins Meliã-Hotel in der Friedrichstr.,
 selbstverst&auml;ndlich ist die Psy-Sekte wieder am Start.  
 P.S.: Frohe Weihnachten an alle!
 
-<span id="2024-12-24">[Mi., **25.12.**]</span>
+<span id="2024-12-25">[Mi., **25.12.**]</span>
 Im Hotel selbstverst&auml;ndlich nur Stress und Drama mit der "telepathischen" M&uuml;lleinrede des Tages:
 Meine Ex-Nachbarin ist beim Versuch,
 Anzeige wegen Misshandlung zu erstatten,
-auf der Toilette der Polizeidirektion von ihrer neuen Freundin "nach Hause" entf&uuml;hrt wor&shy;den.<sup>:warning:Einrede!</sup>
+auf der Toilette eines Abschnitts (28?) der Polizeidirektion 2
+von ihrer neuen Freundin "nach Hause" entf&uuml;hrt wor&shy;den.<sup>:warning:Einrede!</sup>
+
+<span id="2024-12-26">[Do., **26.12.**]</span>
+Crew-Members dieser bekloppten Psy-Sekte heute mit dem freundlichen Hinweis,
+alles sei nicht so schlimm,
+weil heute Mittag ja schlie&szlig;lich der Polizistensohn aus Hamburg kommen w&uuml;rde,
+dann w&auml;re ja alles gut.
+Das ganze verwoben in eine oberfl&auml;chliche Abhandlung bzgl. Glaubens allgemein,
+so dass sich wohl eine Allegorie auf Jesus Christus ableiten soll.  
+Wie stumpf ist das denn?! :joy:  
+Dann muss ich sagen,
+die Jungs (und M&auml;dels) haben wenig Ahnung,
+wie eine Schizophrenie funktioniert. :smirk:  
+Warum sollte sich ein schizophrener Mensch eine so bekloppte Allegorie aus dem Arsch ziehen?
+Ist das d&auml;mlich. Die sind im Gegensatz zu mir auf keinen Fall n&uuml;chtern.. :joy:  
 
 <span id="2024-12-07">[Sa., **07.12.**]</span>
 Dieser komi&shy;sche
