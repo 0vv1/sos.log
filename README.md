@@ -6,7 +6,7 @@ author:  © 2021-2024 alexander puls <github@0vv1.net>
 license: cc by-nc-nd 4.0 int. (creative commons: namensnennung -  
          nicht kommerziell - keine bearbeitung 4.0 international)  
          <https://0vv1.io/cc-by-nc-nd>  
-version: di., 24. dez. 2024  
+version: do., 26. dez. 2024  
 ```
 
 <h1>Von Crews da drau&szlig;en,
@@ -330,10 +330,19 @@ Ich will die sog. Wahr&shy;heit wis&shy;sen!
 So schreck&shy;lich oder banal sie auch immer sein mag.
 	</details>
 
-[Di., **24.12.**]
+<span id="2024-12-24">[Di., **24.12.**]</span>
 Sind die in der letzten Nacht wieder in die Wohnung,
 nur um mir ein Kissen abzuziehen?!
-Was wollen die damit?
+Was wollen die damit?  
+Abends ins Meliã-Hotel in der Friedrichstr.,
+selbstverst&auml;ndlich ist die Psy-Sekte wieder am Start.  
+P.S.: Frohe Weihnachten an alle!
+
+<span id="2024-12-24">[Di., **25.12.**]</span>
+Im Hotel selbstverst&auml;ndlich nur Stress und Drama mit der "telepathischen" M&uuml;lleinrede des Tages:
+Meine Ex-Nachbarin ist beim Versuch,
+Anzeige wegen Misshandlung zu erstatten,
+auf der Toilette der Polizeidirektion von ihrer neuen Freundin "nach Hause" entf&uuml;hrt wor&shy;den<sup>:warning:Einrede!</sup>.
 
 <span id="2024-12-07">[Sa., **07.12.**]</span>
 Dieser komi&shy;sche
