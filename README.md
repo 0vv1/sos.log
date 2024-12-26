@@ -338,11 +338,11 @@ Abends ins Meliã-Hotel in der Friedrichstr.,
 selbstverst&auml;ndlich ist die Psy-Sekte wieder am Start.  
 P.S.: Frohe Weihnachten an alle!
 
-<span id="2024-12-24">[Di., **25.12.**]</span>
+<span id="2024-12-24">[Mi., **25.12.**]</span>
 Im Hotel selbstverst&auml;ndlich nur Stress und Drama mit der "telepathischen" M&uuml;lleinrede des Tages:
 Meine Ex-Nachbarin ist beim Versuch,
 Anzeige wegen Misshandlung zu erstatten,
-auf der Toilette der Polizeidirektion von ihrer neuen Freundin "nach Hause" entf&uuml;hrt wor&shy;den<sup>:warning:Einrede!</sup>.
+auf der Toilette der Polizeidirektion von ihrer neuen Freundin "nach Hause" entf&uuml;hrt wor&shy;den.<sup>:warning:Einrede!</sup>
 
 <span id="2024-12-07">[Sa., **07.12.**]</span>
 Dieser komi&shy;sche
