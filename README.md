@@ -364,7 +364,9 @@ Ist das d&auml;mlich. Die sind im Gegensatz zu mir auf keinen Fall n&uuml;chtern
 > Ich kenne keine einzige dieser
 > (mich angeblich mit Kurzwellen-Waffen angreifenden) Stumpfbirnen. :joy:
 > Irgendwelche angebl. Sebastians/Christians(?), Enricos(?), Julias, Felix/Matthias(?) e&#8239;tc
-> sind mir bis heute jeden Nachweis einer Existenz schuldig geblieben.
+> sind mir bis heute jeden Nachweis einer Existenz schuldig geblieben
+> (was &uuml;berhaupt nur der Grund daf&uuml;r ist,
+> dass sie mir auch nur eine Sekunde meiner Zeit rauben k&ouml;nnen).
 > Die Namen wahrscheinlich komplett aus dem Arsch gezogen.
 
 <span id="2024-12-07">[Sa., **07.12.**]</span>
