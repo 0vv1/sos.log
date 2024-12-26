@@ -359,7 +359,7 @@ wie eine Schizophrenie funktioniert. :smirk:
 Warum sollte sich ein schizophrener Mensch eine so bekloppte Allegorie aus dem Arsch ziehen?
 Ist das d&auml;mlich. Die sind im Gegensatz zu mir auf keinen Fall n&uuml;chtern.. :joy:  
 
-> [NOTE!]
+> [!NOTE]
 > [nochmal der **Hinweis**]
 > Ich kenne keine einzige dieser
 > (mich angeblich mit Kurzwellen-Waffen angreifenden) Stumpfbirnen. :joy:
