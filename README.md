@@ -363,7 +363,8 @@ Ist das d&auml;mlich. Die sind im Gegensatz zu mir auf keinen Fall n&uuml;chtern
 > [nochmal der **Hinweis**]
 > Ich kenne keine einzige dieser
 > (mich angeblich mit Kurzwellen-Waffen angreifenden),
-> sich ausschlie&szlig;lich als winselnde Stimmchen in der Wand resp. "meinem Kopf" vor sich hin p&ouml;belnden Stumpfbirnen. :joy:
+> sich seit 1.454 Tagen ausschlie&szlig;lich als winselnde Stimmchen in der Wand resp.
+> "meinem Kopf"darstellenden, vor sich hin p&ouml;belnden Stumpfbirnen. :joy:
 > Irgendwelche angebl. Sebastians/Christians(?), Enricos(?), Julias, Felix/Matthias(?) e&#8239;tc
 > sind mir bis heute jeden Nachweis einer Existenz schuldig geblieben
 > (was &uuml;berhaupt nur der Grund daf&uuml;r ist,
@@ -375,7 +376,8 @@ Ist das d&auml;mlich. Die sind im Gegensatz zu mir auf keinen Fall n&uuml;chtern
 > wer diese wohl vermissen k&ouml;nnte,
 > da ich die werten Damen und Herren bei aller Zur&uuml;ckhaltung kaum charakterlich geeignet sehe,
 > solcherlei Refugien auch nur in Besitz zu halten gescheige denn zu ge-/missbrauchen.
-> Der Vollst&auml;ndigkeit halber gab es von mir nie ein Einverst&auml;ndnis.
+> Der Vollst&auml;ndigkeit halber gab es von mir nie ein Einverst&auml;ndnis
+> (warum auch immer man das &uuml;berhaupt anmerken m&uuml;sste :joy:).
 
 <span id="2024-12-07">[Sa., **07.12.**]</span>
 Dieser komi&shy;sche
