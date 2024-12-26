@@ -351,13 +351,21 @@ alles sei nicht so schlimm,
 weil heute Mittag ja schlie&szlig;lich der Polizistensohn aus Hamburg kommen w&uuml;rde,
 dann w&auml;re ja alles gut.
 Das ganze verwoben in eine oberfl&auml;chliche Abhandlung bzgl. Glaubens allgemein,
-so dass sich wohl eine Allegorie auf Jesus Christus ableiten soll.  
+so dass sich wohl eine Allegorie auf Jesus Christus ableiten soll.
 Wie stumpf ist das denn?! :joy:  
 Dann muss ich sagen,
 die Jungs (und M&auml;dels) haben wenig Ahnung,
 wie eine Schizophrenie funktioniert. :smirk:  
 Warum sollte sich ein schizophrener Mensch eine so bekloppte Allegorie aus dem Arsch ziehen?
 Ist das d&auml;mlich. Die sind im Gegensatz zu mir auf keinen Fall n&uuml;chtern.. :joy:  
+
+> [NOTE!]
+> [nochmal der **Hinweis**]
+> Ich kenne keine einzige dieser
+> (mich angeblich mit Kurzwellen-Waffen angreifenden) Stumpfbirnen. :joy:
+> Irgendwelche angebl. Sebastians/Christians(?), Enricos(?), Julias, Felix/Matthias(?) e&#8239;tc
+> sind mir bis heute jeden Nachweis einer Existenz schuldig geblieben.
+> Die Namen wahrscheinlich komplett aus dem Arsch gezogen.
 
 <span id="2024-12-07">[Sa., **07.12.**]</span>
 Dieser komi&shy;sche
