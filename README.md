@@ -9,7 +9,7 @@ license: cc by-nc-nd 4.0 int. (creative commons: namensnennung -
 version: di., 31. dez. 2024  
 ```
 
-<h1>Manipuliert da drau&szlig;en eine Crew aus dem Verborgenen gezielt Denken & Handeln einzelner Individuen,
+<h1>Manipuliert da drau&szlig;en eine Crew aus dem Verborgenen (nur?) akustisch Denken & Handeln einzelner Individuen,
 um ihre Ziele durchzusetzen?</h1>
 
 <!--
@@ -105,6 +105,10 @@ um ihre Ziele durchzusetzen?</h1>
 > (und fremdes Denken/Handeln unmittelbar beeinflussen k&ouml;nnen?),
 > was mehr als unwahrscheinlich ist.  
 > Richtig?!
+
+> [!CAUTION]
+> Strafverfolgung vielleicht mal ohne diese Ohrst&ouml;psel probieren?  
+> Die Jungs (und M&auml;del) h&ouml;ren au&szlig;erdem brav BOS-Funk mit und entlasten den Notruf.
 
 <h2>In eige&shy;ner Sa&shy;che</h2>
 
