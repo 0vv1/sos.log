@@ -6,14 +6,13 @@ author:  © 2021-2024 alexander puls <github@0vv1.net>
 license: cc by-nc-nd 4.0 int. (creative commons: namensnennung -  
          nicht kommerziell - keine bearbeitung 4.0 international)  
          <https://0vv1.io/cc-by-nc-nd>  
-version: do., 26. dez. 2024  
+version: di., 31. dez. 2024  
 ```
 
-<h1>Von Crews da drau&szlig;en,
-	die aus dem Ver&shy;bor&shy;ge&shy;nen so glaub&shy;w&uuml;r&shy;dig
-	und &uuml;ber&shy;zeu&shy;gend tun als ob,
-	dass jeder an&shy;nimmt, es ist</h1>
+<h1>Manipuliert da drau&szlig;en eine Crew gezielt Denken & Handeln einzelner Individuen,
+um ihre Ziele durchzusetzen?</h1>
 
+<!--
 > [!CAUTION]
 > .. **bis es auf einmal tatsächlich ist**
 > 
@@ -36,6 +35,75 @@ version: do., 26. dez. 2024
 >	
 > Und:
 > **Was hab ich damit zu tun?**  
+-->
+
+> [!NOTE]
+> [Di., **31.12.**: **Zus.-fassung** von der Zugspitze]
+> 
+> * einige Initialt&auml;ter drehen vollkommen durch und inszenieren(?) Schwerststraftaten wie
+> * Morde (Wo ist Sabrina?),
+> * Menschenhandel/Sklaverei(?),
+> * Freiheitsberaubung,
+> * schwerste Misshandlungen Dritter
+>   (Wie geht es Lia?),
+> auch j&uuml;ngster(!) Menschen),
+> * grob: s&auml;mtlich **Handeln gegen** die **Selbstbestimmung** des jeweiligen Individuums,
+> * jede Grenze &uuml;berschreitend
+>   (nicht, weil man muss, sondern als Geste?).  
+> * unter Vort&auml;uschung (Inszenierung?) der Manipulation selbiger durch rein verbale Kommunikation/"Programmierung"(?) der Gehirne ihrer
+>   (immer(?) weiblichen, 
+>   manchmal minderj&auml;hrigen Opfer) Opfer<sup>:warning:Einrede</sup>
+> * Aber auch absurde **Nebentaten** wie
+>   * Durchröntgen von Wohnr&auml;umen ganz normaler Mietsh&auml;user,  
+>   * Attackieren von Nachbarn mittels Kurzwellenwaffen durch die Wand
+>     (aber auch eigener "Crew"-Mitgieder, angebl. "Freunde" und "unterworfener" Frauen), aber  
+>    * immer **sexuelle N&ouml;tigung** in allen auch nur halbwegs denkbaren Ausformungen
+>       (vollkommen kaputt)  
+> * soweit **ohne** erkennbares **Motiv**<sup>(?)</sup>
+>   (penetrante T&auml;uschung eines Initialt&auml;ters:
+>   angebliche Zwangsprostitution<sup>:warning:Einrede</sup>
+>   angeblich *telepathie*fähiger(?!) Menschen)<sup>:warning:Einrede</sup>,  
+>   warum auch immer.. :smirk:  
+> * immer aber:
+>   Die best&auml;ndige Drohung,
+>   mir s&auml;mtliche Taten
+>   (von gesch&auml;tzt knapp zehn T&auml;tern!) unterschieben zu k&ouml;nnen,
+>   dies auch zu wollen und durchzuziehen.  
+>  
+> kurz: Die **Unterjochung kompletter Wohnbl&ouml;cke** (in fremdem Namen?) ohne erkennbaren Grund.  
+> 
+> Weitere **Einrede**: Hauptt&auml;ter verf&uuml;gen &uuml;ber die M&ouml;glichkeit,
+> meine Gedanken<sup>(!)</sup> (zumindest &uuml;ber kurze Distanzen?) abzuh&ouml;ren/aufzunehmen.<sup>:warning:Suggestion</sup>
+> (Hier interessiert mich dringend,
+> wie "die" diesen Eindruck entstehen lassen k&ouml;nnen!
+> Finde ich sehr beeindruckend, auch wenn mir diese ungehobelten anonymen Atzen in meinem Kopf gehörig auf die N&uuml;sse gehen. :joy:)  
+> Eine Vielzahl T&auml;ter (Liste in einem Vault hier bei GitHub) kann behaupten,
+> ich zu sein,
+> selbst wenn sie "meine Gedanken" mit widerw&auml;rtigstem M&uuml;ll anreichern?<sup>:warning:Suggestion</sup>
+> 
+> N&auml;chste **Einrede**:
+> Einer der Hauptt&auml;ter diskreditiert mich in der halben Welt,
+> hetzt mir selbst OK auf den Hals.<sup>:warning:Suggestion</sup>.
+> 
+> **Frage**: T&auml;ter haben nur Hass/Verachtung f&uuml;r mich,
+> folgen mir aber auf Schritt und Tritt,
+> selbst wenn ich in Hotels und fremde St&auml;dte fl&uuml;chte.<sup>:warning:Suggestion</sup>  
+> Weitere **Frage**:
+> Warum darf dieses ekelhafte sadistische Pack im meinem Kopf herum&shy;marodieren wie es lustig ist,
+> nicht aber im *U-Bahnhof Friedrichstr.*?<sup>:warning:Suggestion</sup>
+
+> [!IMPORTANT]
+> [**31.12.**[
+> Das hier ist **nicht mein M&uuml;ll**,
+> sondern eingeredet/suggeriert/inszeniert.  
+> Ich r&auml;ume hier eigentlich nur auf.  
+> **Sollte** an diesen Suggestionen allerdings irgendet**was dran sein**,
+> **sollte jede**,
+> von diesen Kreaturen ge&auml;u&szlig;erte,
+> **Silbe toxisch sein**
+> (und fremdes Denken/Handeln unmittelbar beeinflussen k&ouml;nnen?),
+> was mehr als unwahrscheinlich ist.  
+> Richtig?!
 
 <h2>In eige&shy;ner Sa&shy;che</h2>
 
