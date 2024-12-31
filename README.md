@@ -41,36 +41,40 @@ um ihre Ziele durchzusetzen?</h1>
 > [Di., **31.12.**: **Zus.-fassung** von der Zugspitze]
 > 
 > * einige Initialt&auml;ter drehen vollkommen durch und inszenieren(?) Schwerststraftaten wie
-> * Morde (Wo ist Sabrina?),
-> * Menschenhandel/Sklaverei(?),
-> * Freiheitsberaubung,
-> * schwerste Misshandlungen Dritter
->   (Wie geht es Lia?),
-> auch j&uuml;ngster(!) Menschen),
+>   * Morde (Wo ist Sabrina?),
+>   * Menschenhandel/Sklaverei(?),
+>   * Freiheitsberaubung,
+>   * schwerste Misshandlungen Dritter
+>     (Wie geht es Lia?),
+>     auch j&uuml;ngster(!) Menschen),
+>
 > * grob: s&auml;mtlich **Handeln gegen** die **Selbstbestimmung** des jeweiligen Individuums,
-> * jede Grenze &uuml;berschreitend
+>
+>  * jede Grenze &uuml;berschreitend
 >   (nicht, weil man muss, sondern als Geste?).  
-> * unter Vort&auml;uschung (Inszenierung?) der Manipulation selbiger durch rein verbale Kommunikation/"Programmierung"(?) der Gehirne ihrer
->   (immer(?) weiblichen, 
->   manchmal minderj&auml;hrigen Opfer) Opfer<sup>:warning:Einrede</sup>
+>   * unter Vort&auml;uschung (Inszenierung?) der Manipulation selbiger durch rein verbale Kommunikation/"Programmierung"(?) der Gehirne ihrer
+>   (meist) weiblichen, 
+>   manchmal minderj&auml;hrigen Opfer<sup>:warning:Einrede</sup>
+>
 > * Aber auch absurde **Nebentaten** wie
 >   * Durchröntgen von Wohnr&auml;umen ganz normaler Mietsh&auml;user,  
 >   * Attackieren von Nachbarn mittels Kurzwellenwaffen durch die Wand
 >     (aber auch eigener "Crew"-Mitgieder, angebl. "Freunde" und "unterworfener" Frauen), aber  
->    * immer **sexuelle N&ouml;tigung** in allen auch nur halbwegs denkbaren Ausformungen
->       (vollkommen kaputt)  
+>   * immer **sexuelle N&ouml;tigung** in allen auch nur halbwegs denkbaren Ausformungen
+>     (vollkommen kaputt)  
+>
 > * soweit **ohne** erkennbares **Motiv**<sup>(?)</sup>
->   (penetrante T&auml;uschung eines Initialt&auml;ters:
->   angebliche Zwangsprostitution<sup>:warning:Einrede</sup>
->   angeblich *telepathie*fähiger(?!) Menschen)<sup>:warning:Einrede</sup>,  
->   warum auch immer.. :smirk:  
-> * immer aber:
->   Die best&auml;ndige Drohung,
->   mir s&auml;mtliche Taten
->   (von gesch&auml;tzt knapp zehn T&auml;tern!) unterschieben zu k&ouml;nnen,
->   dies auch zu wollen und durchzuziehen.  
+> * penetrante T&auml;uschung eines Initialt&auml;ters:
+>   * angebliche Zwangsprostitution<sup>:warning:Einrede</sup>
+>   * angeblich *telepathie*fähiger(?!) Menschen<sup>:warning:Einrede</sup>,  
+>   */warum auch immer.. :smirk:  
+>   * immer aber:
+>     Die best&auml;ndige Drohung,
+>     mir s&auml;mtliche Taten
+>     (von gesch&auml;tzt knapp zehn T&auml;tern!) unterschieben zu k&ouml;nnen,
+>     dies auch zu wollen und durchzuziehen.  
 >  
-> kurz: Die **Unterjochung kompletter Wohnbl&ouml;cke** (in fremdem Namen?) ohne erkennbaren Grund.  
+> kurz: Die **Unterjochung kompletter Wohnbl&ouml;cke** (in fremdem Namen?) ohne erkennbaren Grund.[^1]  
 > 
 > Weitere **Einrede**: Hauptt&auml;ter verf&uuml;gen &uuml;ber die M&ouml;glichkeit,
 > meine Gedanken<sup>(!)</sup> (zumindest &uuml;ber kurze Distanzen?) abzuh&ouml;ren/aufzunehmen.<sup>:warning:Suggestion</sup>
@@ -5642,7 +5646,11 @@ Sol&shy;ch&shy;er Art Han&shy;deln und Orga&shy;ni&shy;sa&shy;tion
 	per&shy;s&ouml;n&shy;li&shy;che Gren&shy;ze eines an&shy;de&shy;ren zu
 	&uuml;ber&shy;schrei&shy;ten dro&shy;hen.
 
-[^1]: Eine &uuml;ber&shy;ra&shy;schen&shy;de Beob&shy;ach&shy;tung:
+[^1]: Dabei meine (wohl einzigen) beiden Achillesversen bedienend:  
+* mein Anti-Mensch in Form eines sadistischen, egomanen Soziopathen,
+* meine gesellschaftliche Anti-Ordnung in Form eines pervertierten Faschismus postulierend, eine virtuelle Mikro-Nazi-Diktatur (mit degenerierter Moral und demonstrativ jede Grenze des Einzelnen &uuml;berschreitend)
+
+[^20]: Eine &uuml;ber&shy;ra&shy;schen&shy;de Beob&shy;ach&shy;tung:
 	Die&shy;se
 	(sich schein&shy;bar auch selbst so be&shy;zei&shy;chnen&shy;den)
 	Sadis&shy;ten neh&shy;me ich als un&shy;fass&shy;bar feige wahr.  
