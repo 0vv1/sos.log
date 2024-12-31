@@ -9,7 +9,7 @@ license: cc by-nc-nd 4.0 int. (creative commons: namensnennung -
 version: di., 31. dez. 2024  
 ```
 
-<h1>Manipuliert da drau&szlig;en eine Crew gezielt Denken & Handeln einzelner Individuen,
+<h1>Manipuliert da drau&szlig;en eine Crew aus dem Verborgenen gezielt Denken & Handeln einzelner Individuen,
 um ihre Ziele durchzusetzen?</h1>
 
 <!--
@@ -82,8 +82,9 @@ um ihre Ziele durchzusetzen?</h1>
 > selbst wenn sie "meine Gedanken" mit widerw&auml;rtigstem M&uuml;ll anreichern?<sup>:warning:Suggestion</sup>
 > 
 > N&auml;chste **Einrede**:
-> Einer der Hauptt&auml;ter diskreditiert mich in der halben Welt,
-> hetzt mir selbst OK auf den Hals.<sup>:warning:Suggestion</sup>.
+> Einige Hauptt&auml;ter behaupten,
+> von mir abgespaltene Pimmel-Birnen zu sein<sup>:warning:Suggestion</sup> (warum?), diskreditieren mich in der halben Welt,
+> hetzen mir selbst OK auf den Hals.<sup>:warning:Suggestion</sup>.
 > 
 > **Frage**: T&auml;ter haben nur Hass/Verachtung f&uuml;r mich,
 > folgen mir aber auf Schritt und Tritt,
@@ -93,7 +94,7 @@ um ihre Ziele durchzusetzen?</h1>
 > nicht aber im *U-Bahnhof Friedrichstr.*?<sup>:warning:Suggestion</sup>
 
 > [!IMPORTANT]
-> [**31.12.**[
+> [**31.12.**]
 > Das hier ist **nicht mein M&uuml;ll**,
 > sondern eingeredet/suggeriert/inszeniert.  
 > Ich r&auml;ume hier eigentlich nur auf.  
