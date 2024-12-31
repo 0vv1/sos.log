@@ -5646,9 +5646,9 @@ Sol&shy;ch&shy;er Art Han&shy;deln und Orga&shy;ni&shy;sa&shy;tion
 	&uuml;ber&shy;schrei&shy;ten dro&shy;hen.
 
 [^20]: Dabei meine (wohl einzigen) beiden Achillesversen bedienend:  
-1. mein Anti-Mensch in Form eines sadistischen, egomanen Soziopathen,
-2. postuliert einen pervertierten Faschismus, eine virtuelle Mikro-Nazi-Diktatur (mit degenerierter Moral und demonstrativ jede Grenze des Einzelnen &uuml;berschreitend).
-**Soll das Zufall sein?**
+**Erstens** meinen Anti-Menschen in Form eines sadistischen, egomanen Soziopathen und  
+**zweitens** einen pervertierten Faschismus postulierend, eine virtuelle Mikro-Nazi-Diktatur (mit degenerierter Moral und demonstrativ jede Grenze des Einzelnen &uuml;berschreitend).  
+**Und das ist Zufall?**
 
 [^1]: Eine &uuml;ber&shy;ra&shy;schen&shy;de Beob&shy;ach&shy;tung:
 	Die&shy;se
