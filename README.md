@@ -66,21 +66,20 @@ um ihre Ziele durchzusetzen?</h1>
 > * soweit **ohne** erkennbares **Motiv**<sup>(?)</sup>
 > * penetrante T&auml;uschung eines Initialt&auml;ters:
 >   * angebliche Zwangsprostitution<sup>:warning:Einrede</sup>
->   * angeblich *telepathie*fähiger(?!) Menschen<sup>:warning:Einrede</sup>,  
->   */warum auch immer.. :smirk:  
+>   * angeblich *telepathie*fähiger(?!) Menschen<sup>:warning:Einrede</sup> (warum auch immer.. :smirk:)  
 >   * immer aber:
 >     Die best&auml;ndige Drohung,
 >     mir s&auml;mtliche Taten
 >     (von gesch&auml;tzt knapp zehn T&auml;tern!) unterschieben zu k&ouml;nnen,
 >     dies auch zu wollen und durchzuziehen.  
 >  
-> kurz: Die **Unterjochung kompletter Wohnbl&ouml;cke** (in fremdem Namen?) ohne erkennbaren Grund.[^1]  
+> kurz: Die **Unterjochung kompletter Wohnbl&ouml;cke** (in fremdem Namen?) ohne erkennbaren Grund.[^20]  
 > 
 > Weitere **Einrede**: Hauptt&auml;ter verf&uuml;gen &uuml;ber die M&ouml;glichkeit,
 > meine Gedanken<sup>(!)</sup> (zumindest &uuml;ber kurze Distanzen?) abzuh&ouml;ren/aufzunehmen.<sup>:warning:Suggestion</sup>
 > (Hier interessiert mich dringend,
 > wie "die" diesen Eindruck entstehen lassen k&ouml;nnen!
-> Finde ich sehr beeindruckend, auch wenn mir diese ungehobelten anonymen Atzen in meinem Kopf gehörig auf die N&uuml;sse gehen. :joy:)  
+> Finde ich sehr beeindruckend, auch wenn mir diese ungehobelten anonymen Atzen in meinem Kopf geh&ouml;rig auf die N&uuml;sse gehen. :joy:)  
 > Eine Vielzahl T&auml;ter (Liste in einem Vault hier bei GitHub) kann behaupten,
 > ich zu sein,
 > selbst wenn sie "meine Gedanken" mit widerw&auml;rtigstem M&uuml;ll anreichern?<sup>:warning:Suggestion</sup>
@@ -5646,11 +5645,12 @@ Sol&shy;ch&shy;er Art Han&shy;deln und Orga&shy;ni&shy;sa&shy;tion
 	per&shy;s&ouml;n&shy;li&shy;che Gren&shy;ze eines an&shy;de&shy;ren zu
 	&uuml;ber&shy;schrei&shy;ten dro&shy;hen.
 
-[^1]: Dabei meine (wohl einzigen) beiden Achillesversen bedienend:  
-* mein Anti-Mensch in Form eines sadistischen, egomanen Soziopathen,
-* meine gesellschaftliche Anti-Ordnung in Form eines pervertierten Faschismus postulierend, eine virtuelle Mikro-Nazi-Diktatur (mit degenerierter Moral und demonstrativ jede Grenze des Einzelnen &uuml;berschreitend)
+[^20]: Dabei meine (wohl einzigen) beiden Achillesversen bedienend:  
+1. mein Anti-Mensch in Form eines sadistischen, egomanen Soziopathen,
+2. postuliert einen pervertierten Faschismus, eine virtuelle Mikro-Nazi-Diktatur (mit degenerierter Moral und demonstrativ jede Grenze des Einzelnen &uuml;berschreitend).
+**Soll das Zufall sein?**
 
-[^20]: Eine &uuml;ber&shy;ra&shy;schen&shy;de Beob&shy;ach&shy;tung:
+[^1]: Eine &uuml;ber&shy;ra&shy;schen&shy;de Beob&shy;ach&shy;tung:
 	Die&shy;se
 	(sich schein&shy;bar auch selbst so be&shy;zei&shy;chnen&shy;den)
 	Sadis&shy;ten neh&shy;me ich als un&shy;fass&shy;bar feige wahr.  
