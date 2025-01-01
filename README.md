@@ -83,6 +83,7 @@ um ihre Ziele durchzusetzen?</h1>
 > Eine Vielzahl T&auml;ter (Liste in einem Vault hier bei GitHub) kann behaupten,
 > ich zu sein,
 > selbst wenn sie "meine Gedanken" mit widerw&auml;rtigstem M&uuml;ll anreichern?<sup>:warning:Suggestion</sup>
+> Die verf&uuml;gen durch jahrelanges Abh&ouml;ren meiner Wohnr&auml;ume leider &uuml;ber ein **hervorragendes Profil** (nicht nur) **meiner Stimme** und **k&ouml;nnen mich KI-gest&uuml;tzt leider alles sagen lassen!  
 > 
 > N&auml;chste **Einrede**:
 > Einige Hauptt&auml;ter behaupten,
