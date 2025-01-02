@@ -86,14 +86,16 @@ um ihre Ziele durchzusetzen?</h1>
 > wie ich finde.
 > So langsam (seit Aug. '24) wache ich jedenfalls auf und bef&uuml;rchte,
 > dass mehr des Geh&ouml;rten real gewesen sein k&ouml;nnte als mir lieb sein kann.
-> I.&#8239;d.&#8239;Z.:
+> I.&#8239;d.&#8239;Z.:  
 > Wer/was ist diese
 > (vollkommen durchgeknallte)
 > Entit&auml;t,
 > die am ehesten auf den Familiennamen *Fischer* h&ouml;ren m&ouml;chte?
-> Wie geht es Lia?
-> Wo ist Sabrina?
+> (wenn Mensch: Hat er(?) einen ebenso kaputten "Kumpel" *Felix* (Michael?)?  
+> Wie geht es Lia?  
+> Wo ist Sabrina (alias *Lia II*)?  
 > Gibt es eine 14-j&auml;hrige Samira?
+> Oder ist alles s&auml;mtlich eingeredeter Stu&szlig; mind. zweier Bekloppter?
 > 
 > Weitere **Einrede**: Hauptt&auml;ter verf&uuml;gen &uuml;ber die M&ouml;glichkeit,
 > meine Gedanken<sup>(!)</sup> (zumindest &uuml;ber kurze Distanzen?) abzuh&ouml;ren/aufzunehmen.<sup>:warning:Suggestion</sup>
