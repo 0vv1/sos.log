@@ -84,7 +84,16 @@ um ihre Ziele durchzusetzen?</h1>
 > nicht irgendeine Pers&ouml;nlichkeitsst&ouml;rung l&auml;sst die Wahrnehmung erodieren,
 > sondern der offizielle Verdacht einer Paychiatrie,
 > wie ich finde.
-> So langsam (seit Aug. '24) wache ich jedenfalls auf.
+> So langsam (seit Aug. '24) wache ich jedenfalls auf und bef&uuml;rchte,
+> dass mehr des Geh&ouml;rten real gewesen sein k&ouml;nnte als mir lieb sein kann.
+> I.&#8239;d.&#8239;Z.:
+> Wer/was ist diese
+> (vollkommen durchgeknallte)
+> Entit&auml;t,
+> die am ehesten auf den Familiennamen *Fischer* h&ouml;ren m&ouml;chte?
+> Wie geht es Lia?
+> Wo ist Sabrina?
+> Gibt es eine 14-j&auml;hrige Samira?
 > 
 > Weitere **Einrede**: Hauptt&auml;ter verf&uuml;gen &uuml;ber die M&ouml;glichkeit,
 > meine Gedanken<sup>(!)</sup> (zumindest &uuml;ber kurze Distanzen?) abzuh&ouml;ren/aufzunehmen.<sup>:warning:Suggestion</sup>
@@ -5661,6 +5670,8 @@ Sol&shy;ch&shy;er Art Han&shy;deln und Orga&shy;ni&shy;sa&shy;tion
 **Erstens** meinen Anti-Menschen in Form eines sadistischen, egomanen Soziopathen und  
 **zweitens** einen pervertierten Faschismus postulierend, eine virtuelle Mikro-Nazi-Diktatur (mit degenerierter Moral und demonstrativ jede Grenze des Einzelnen &uuml;berschreitend).  
 **Und das ist Zufall?**
+
+[^21]: Umkehrung des Faktischen?
 
 [^1]: Eine &uuml;ber&shy;ra&shy;schen&shy;de Beob&shy;ach&shy;tung:
 	Die&shy;se
