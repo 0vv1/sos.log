@@ -59,8 +59,8 @@ um ihre Ziele durchzusetzen?</h1>
 > * Aber auch absurde **Nebentaten** wie
 >   * Durchröntgen von Wohnr&auml;umen ganz normaler Mietsh&auml;user,  
 >   * Attackieren von Nachbarn mittels Kurzwellenwaffen durch die Wand
->     (aber auch eigener "Crew"-Mitgieder, angebl. "Freunde" und "unterworfener" Frauen), aber  
->   * immer **sexuelle N&ouml;tigung** in allen auch nur halbwegs denkbaren Ausformungen
+>     (aber auch eigener "Crew"-Mitgieder, angebl. "Freunde" und "unterworfener" Frauen)<sup>:warning:Einrede/Sugg.?</sup> und immmer  
+>   * **sexuelle N&ouml;tigung** in allen auch nur halbwegs denkbaren Ausformungen
 >     (vollkommen kaputt)  
 >
 > * soweit **ohne** erkennbares **Motiv**<sup>(?)</sup>
@@ -73,7 +73,18 @@ um ihre Ziele durchzusetzen?</h1>
 >     (von gesch&auml;tzt knapp zehn T&auml;tern!) unterschieben zu k&ouml;nnen,
 >     dies auch zu wollen und durchzuziehen.  
 >  
-> kurz: Die **Unterjochung kompletter Wohnbl&ouml;cke** (in fremdem Namen?) ohne erkennbaren Grund.[^20]  
+> kurz: Die **Unterjochung kompletter Wohnbl&ouml;cke** (in fremdem Namen?) ohne erkennbaren Grund.[^20]
+>
+> [**02.01.**, wichtige **Anm**.]
+> Im Januar 2021 begann einer der Hauptt&auml;ter bei mir mit der Induktion einer "k&uuml;nstlichen" (Pseudo-)Schizophrenie,
+> indem er mir einredete,
+> es g&auml;be ihn nicht,
+> ich w&uuml;rde ihn mir nur einbilden.[^21]
+> Nat&uuml;rlich war und bin ich vollkommen gesund,
+> nicht irgendeine Pers&ouml;nlichkeitsst&ouml;rung l&auml;sst die Wahrnehmung erodieren,
+> sondern der offizielle Verdacht einer Paychiatrie,
+> wie ich finde.
+> So langsam (seit Aug. '24) wache ich jedenfalls auf.
 > 
 > Weitere **Einrede**: Hauptt&auml;ter verf&uuml;gen &uuml;ber die M&ouml;glichkeit,
 > meine Gedanken<sup>(!)</sup> (zumindest &uuml;ber kurze Distanzen?) abzuh&ouml;ren/aufzunehmen.<sup>:warning:Suggestion</sup>
